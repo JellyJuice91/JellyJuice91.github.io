@@ -1,1 +1,1 @@
-# JellyJuice91.github.io
+Map of Best Locations Known to Humanity
